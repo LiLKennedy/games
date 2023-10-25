@@ -1,1 +1,1 @@
-my game settings lol xd
+gaming
